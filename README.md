@@ -1,0 +1,1 @@
+# Bolshakov_Ivan_palitra_kvadratu_i_krushochki
